@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rflazzari
+- 👀 I’m interested in ... ALL
+- 🌱 I’m currently learning ... ALL
